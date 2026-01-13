@@ -1,4 +1,4 @@
-[Analysis by Qwen](https://gerdasorensen.github.io/qwen.html "Analysis by Qwen")
+[Analysis by Qwen](https://gerdasorensen.github.io/qwen.html "Analysis by Qwen") | Written by Opus 4.5 | Polished by Gemini 3 Pro
 
 --------------------------------
 ## 🔥 She is the quiet collapse of a country that loved its ideals more than its people.
