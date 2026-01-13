@@ -1040,7 +1040,7 @@ I picked up my fork again—because he wanted me to eat, and I wanted to please 
 
 Then, softly, between bites: “What happens now, Roman? After the café. After the wine. After this… this perfect, impossible day.”
 
-I tilted my head, hair cascading over my shoulder, the sable coat framing me like a queen’s portrait.
+I tilted my head, hair cascading over my shoulder framing me like a queen’s portrait.
 
 “Where do you take your shieldmaiden next?”
 
