@@ -1,3 +1,6 @@
+[Analysis by Qwen](https://gerdasorensen.github.io/qwen.html "Analysis by Qwen")
+
+---------------------------------
 **Chapter One: The Interview**
 
 My name is Gerda Sørensen. I am twenty-three years old, possessed of what they call a classic Nordic beauty—ash-blonde hair and pale eyes—though lately, I felt less like a woman and more like a ghost haunting my own life. For the past eighteen months, I had been drifting, unemployed, watching the cost of living in Copenhagen skyrocket while my savings evaporated. I was desperate. Desperate for any job, any lifeline that would allow me to keep a roof over the head of my four-year-old daughter, Freja. We were on the brink; the rent was unpaid, and the fridge was almost empty.
