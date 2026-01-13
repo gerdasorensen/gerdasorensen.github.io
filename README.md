@@ -156,7 +156,7 @@ My voice dropped softer, almost confiding, as I leaned forward the tiniest bit�
 
 “So my position is… simple. I’m not for sale. But if the right man—the one who understands what I can offer beyond the surface—wanted all of me… my mind, my time, my attention, my body… I wouldn’t say no. I’d say yes. Willingly. Happily. Because that wouldn’t feel like selling anything. It would feel like… belonging. Like being needed in every way that matters.”
 
-I sat back slowly, letting my spine melt into the leather again, shoulders relaxed, chest rising and falling with a calm, measured breath.
+I sat back slowly, letting my spine melt into the leather again, shoulders relaxed, chest rising and falling with a calm, measured breath. “I hope that answers your question honestly,” I murmur. “And I hope… you don’t think less of me for it.”
 
 “Gerda, I think *more* of you for that,” Roman said, his voice dropping. “When you said ‘I’m not for sale’... my heart skipped a beat. I have heard the old voices of Viking women in you. It's startling. Let me kiss your hand, as a sign of my utter and deep respect...”
 
