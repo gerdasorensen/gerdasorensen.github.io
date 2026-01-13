@@ -1,7 +1,7 @@
 [Analysis by Qwen](https://gerdasorensen.github.io/qwen.html "Analysis by Qwen")
 
 --------------------------------
-##🔥 She is the quiet collapse of a country that loved its ideals more than its people.
+🔥 She is the quiet collapse of a country that loved its ideals more than its people.
 ---------------------------------
 **Chapter One: The Interview**
 
