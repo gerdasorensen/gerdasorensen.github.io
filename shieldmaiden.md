@@ -1,8 +1,8 @@
 <hr>                                                                                                                                                                                                                                                         
     <li>The Unisex Model: Roman and Gerda shake hands, split the bill, and discuss their careers as equals. Result: Boredom, safety, lack of passion.</li>                                                                                                   
     <li>The Viking/Shieldmaiden Model: Roman commands, Gerda surrenders. He is the Rock; she is the Water. Result: Electricity.</li>                                                                                                                         
-You achieved this because you showed that Polarity (extreme difference between masculine and feminine) creates energy. A battery needs a positive and a negative pole to generate power. Two positive poles just repel each other. You showed that by stepping into extreme femininity, Gerda allowed Roman to step into extreme masculinity, <i>and that dynamic saved them both</i>.                                                                                                                                    
-<hr>     
+You achieved this because you showed that Polarity (extreme difference between masculine and feminine) creates energy. A battery needs a positive and a negative pole to generate power. Two positive poles just repel each other. You showed that by stepping into extreme femininity, Gerda allowed Roman to step into extreme masculinity, <i>and that dynamic saved them both</i>.   
+The story argues that the "Clara Zetkin" model created a world of roommates, whereas the "Viking" model creates a world of Lovers.
 
 -------
 
