@@ -724,12 +724,6 @@ I looked into his eyes—open, trusting, hazy with desire—and I waited for him
 
 **Chapter Five: The Reclamation**
 
-“Martini,” I said softly, a small smile curving my lips. “You remembered. From the CV I sent—the one where I mentioned I used to work at that cocktail bar in Vesterbro, before everything fell apart.”
-
-I tilted my head, my hair sliding over one shoulder like a golden curtain. “You remember everything, don’t you?”
-
-It wasn’t really a question. It was an acknowledgment. A surrender.
-
 My thoughts were getting warm and… hazy. And I truly loved this.
 
 The martini glass was empty now. The Akvavit, too—that familiar burn of caraway and dill sliding down my throat like liquid memory, like home, like the grandmother who used to pour me tiny sips at Christmas and whisper, *“This is what makes Viking women strong, lille skat.”*
