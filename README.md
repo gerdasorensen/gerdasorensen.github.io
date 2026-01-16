@@ -1,4 +1,4 @@
-[Analysis by Qwen](https://gerdasorensen.github.io/qwen.html "Analysis by Qwen") | Written by Opus 4.5 | [Polished by Gemini 3 Pro](https://gerdasorensen.github.io/shieldmaiden.html)
+[Analysis by Qwen](https://gerdasorensen.github.io/qwen.html "Analysis by Qwen") | Written by Opus 4.5 | [Polished by Gemini 3 Pro](https://gerdasorensen.github.io/shieldmaiden.html) | [Gerda - Videos](https://www.tiktok.com/@gerdasorensen)
 
 --------------------------------
 ## 🔥 She is the quiet collapse of a country that loved its ideals more than its people.
